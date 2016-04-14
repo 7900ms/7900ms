@@ -12,6 +12,4 @@ Stay where you are
 
 Don’t come our way
 
-
-
 —— Rumi
